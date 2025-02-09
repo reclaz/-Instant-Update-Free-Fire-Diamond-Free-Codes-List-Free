@@ -3,9 +3,10 @@
 What & Why Benefit of Free Fire Diamond Generator Codes? 
 Whether it’s for your favorite items, skins, or even premium subscriptions, Free Fire diamond generator codes can unlock a wide array of possibilities. This guide will dive deep into everything you need to know about these diamond generator codes, including how to acquire them and the vast range of possibilities they open up for you. 
 
-**[🎁🎁CLICK HERE TO GET FREE NOW✔️🎁](https://rewardscraft.com/fortnite-v-bucks-gift-codes)**
+**[🎁🎁CLICK HERE TO GET FREE NOW✔️🎁](https://rewardscraft.com/free-fire-free-diamond-codes)**
 
-**[🎁🎁CLICK HERE TO GET FREE NOW✔️🎁](https://rewardscraft.com/fortnite-v-bucks-gift-codes)**
+
+**[🎁🎁CLICK HERE TO GET FREE NOW✔️🎁](https://rewardscraft.com/free-fire-free-diamond-codes)**
 
 Contents include: • What are Free Fire Diamond Generator Codes?
 • Why Choose Free Fire Diamond Generator Codes?
